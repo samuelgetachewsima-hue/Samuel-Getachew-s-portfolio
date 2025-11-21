@@ -1,1 +1,0 @@
-# Samuel-Getachew-s-portfolio
